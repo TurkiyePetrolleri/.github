@@ -8,4 +8,5 @@ Batı Karadeniz Sakarya Bloğu Tuna-1 derin deniz kuyusunda doğal gaz keşfi ya
 
 
 # Yeraltından Millî Ekonomiye
-## Teknolojiyi tecrübemizle harmanlayarak gerçekleştirdiğimiz üretim faaliyetleriyle ülkemize değer katmaya devam ediyoruz.
+Teknolojiyi tecrübemizle harmanlayarak gerçekleştirdiğimiz üretim faaliyetleriyle ülkemize değer katmaya devam ediyoruz.
+![fyk-slider2-118763b58c4235273](https://github.com/user-attachments/assets/b513b266-66eb-4775-8700-b725ad5d1199)
